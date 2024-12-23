@@ -8,7 +8,7 @@ Porque tengo los huevos llenos.
 
 Antes uno podía entrar a facebook/instagram/twitter y ver pura y exclusivamente lo que entraba a buscar, ahora junto con lo que buscaste entra una recomendación, un autoplay al siguiente reel/historia/video, un inicio lleno de publicaciones de gente que no conocés "para ti", un perfil o post que te puede interesar etc, y ahí se te va la vida viendo boludeces que no pediste y que esencialmente son ruido, ruido que no vas a recordar, y que no va a aportarte ningún valor apreciable más allá de haberte sacado tiempo de las manos que aparentemente no necesitabas.
 
-Rara vez alguien dijo "hoy doy gracias a dios por haber podido estar ininterrumpidamente mirando reels por 3 horas". Siempre que alguien experimenta una sesión de reels de más de una hora procede a sentir como con un letargo, cansancio en los ojos, cuerpo semidormido como cuando salís del cine, y una sensación rara de culpa/arrepentimiento, como cuando comés mucho o tenés resaca.
+Rara vez alguien dijo "hoy doy gracias a dios por haber podido estar ininterrumpidamente mirando reels por 3 horas". Siempre que alguien experimenta una sesión de reels de más de una hora procede a sentir como un letargo, cansancio en los ojos, cuerpo semidormido como cuando salís del cine, y una sensación rara de culpa/arrepentimiento, como cuando comés mucho o tenés resaca.
 
 Mis dos mayores problemas son los siguientes:
 
