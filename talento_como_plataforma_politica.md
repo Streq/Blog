@@ -36,4 +36,4 @@ Ahora si me decís que los mortífagos son casualmente todos judíos y Rowling s
 
 A lo que voy con esto es, alguien que es un forro o un boludo o que odiás o que es tu enemigo puede, a pesar de todo, producir algo hermoso que te ayude a salir adelante, haya sido a propósito o sin querer. Las ideas, símbolos, herramientas, fórmulas, recetas, estudios o textos de una persona, _no son_ esa persona ni son lo que esa persona dice, son lo que vos ves, y si vos ves algo útil, entonces aprovechalo. Si para vos Harry Potter tiene un mensaje progre que te ayudó a salir del clóset o decirle a tu viejo que era un forro o lo que mierda sea, entonces Harry Potter es progre y te ayudó a salir del closet o decirle a tu viejo que era un forro o lo que mierda sea y está todo bien, no le debés explicaciones a nadie.
 
-Bueno nada, Luke, sos un capo y un boludo, no hay contradicción, chau me fui a festejar noche buena.
+Bueno nada, Luke, sos un capo y un boludo, no hay contradicción, chau me fui a festejar Nochebuena.
